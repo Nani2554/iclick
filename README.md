@@ -1,1 +1,1 @@
-https://iclick.github.io
+https://iclick2.github.io
